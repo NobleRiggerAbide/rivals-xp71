@@ -1,4 +1,4 @@
-#  
+#  Experience rivals like never before with rare rivals Script, the #1 Script. Includes god mode and fly for unbeatable performance.
 
 
 
